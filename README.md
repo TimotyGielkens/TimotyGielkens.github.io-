@@ -1,4 +1,4 @@
-# Beste ouders en leerling,
+# Beste ouders en leerlingen,
 Welkom in het nieuwe schooljaar! 
 Hieronder vinden jullie enkele belangrijke praktische afspraken voor de piano- en accordeonlessen.
 
@@ -44,12 +44,22 @@ Voor de leerlingen die in een *bijafdeling* les volgen: bekijk het adres op voor
 * Op het einde van het schooljaar: **concertexamen!** In de hoofdschool van de Muziekacademie: **Oudergemlaan 194, 1040 Etterbeek**.
 * Procesevaluatie: wekelijks tijdens de les, de leerlingen krijgen een evaluatiefiche in januari en in mei.
 
-
+<br/>
+<br/>
 ## Bevestig ons zeker dat je deze informatie goed hebt ontvangen.
 
 Met vriendelijke groeten,
 Het lerarenteam.
 
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
 
 
 
